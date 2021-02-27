@@ -1,1 +1,1 @@
-# rsschool-cv
+https://dizollate.github.io/rsschool-cv/cv
